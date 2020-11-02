@@ -1,0 +1,1 @@
+Many cake mixes call for adding vegetable oil, water and eggs to dry ingredients. For a richer flavor, substitute equal quantities of melted butter for the oil. Adding an extra egg is one way to add density. Substitute the water with equal parts milk, or in the case of red velvet cake, buttermilk.
